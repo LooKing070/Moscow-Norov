@@ -1,2 +1,0 @@
-# Moscow-Norov
-To Lyceum
